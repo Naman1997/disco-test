@@ -1,1 +1,1 @@
-Delta Gamma Omega
+Delta Omega
